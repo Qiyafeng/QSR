@@ -3,6 +3,6 @@
 百度网盘链接：https://pan.baidu.com/s/1i5gOF9F
 
 ## NVivo 11 for Mac
+百度网盘链接: https://pan.baidu.com/s/1u8OuqQkGmZsJBwkHAm7GLg 提取码:1w72
 
-
-# 软件仅供学习使用，有能力请支持购买正版
+### 软件仅供学习使用，有能力请支持购买正版
